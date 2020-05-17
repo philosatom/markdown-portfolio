@@ -1,0 +1,1 @@
+I can't do *anything* now, but I gonna become a **frontend developer**.
